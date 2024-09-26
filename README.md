@@ -9,6 +9,8 @@
 ## MGA CRUSH KO
 [Kylie Jenner](https://www.vogue.com/article/kylie-jenner-pink-hair-2024)
 [Paul Walker](https://www.nme.com/news/film/paul-walkers-fast-furious-car-sells-for-555000-at-auction-2975453)
+[Jude Bellingham]
+
 
 
 ## SONG
