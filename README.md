@@ -1,4 +1,4 @@
-# ARROWMSMITH
+# ARROWSMITH
 ## CN 9 **Keizah** Angela C. Bulao
 
 ---
